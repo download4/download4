@@ -2,4 +2,4 @@
 - 👀 I’m interested in roblox developing
 - 🌱 I’m currently learning Luau
 - 💞️ I’m looking to collaborate on nothing
-- 📫 You can reach me on Discord at timmy!#3015
+- 📫 You can reach me on Discord at worst#0489
